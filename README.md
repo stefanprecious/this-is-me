@@ -1,3 +1,3 @@
 #my first observation.
 
-I need to try some thing new
+I need to try more new things.
